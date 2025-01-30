@@ -1,5 +1,5 @@
 ## Frigi 👋
 
-En kundenær rådgiver som frigjør kapasitet, optimaliserer nettet og legger til rette for en bærekraftig energifremtid. 
+En kundenær rådgiver som bistår med frigjøring av energi, fleksibilitet og kapasitet for det grønne skiftet. Fra idé til gjennomføring. 
 
 
