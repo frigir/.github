@@ -1,5 +1,5 @@
 ## Frigi 👋
 
-Frigi er et rådgivningsselskap for områdeløsninger for forbruk, produksjon og lagring av energi og fleksibilitet. 
+En kundenær rådgiver som frigjør kapasitet, optimaliserer nettet og legger til rette for en bærekraftig energifremtid. 
 
 
